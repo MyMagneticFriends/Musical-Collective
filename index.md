@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+My Magnetic Friends: A Musical Collective
 ---
 
